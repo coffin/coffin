@@ -1,4 +1,7 @@
-### Hi there 👋
+### nothing 2 see here.. 😕
+
+most my stuff is private so stop looking at my profile n go look for some females bro  
+currently working on **haunt**, my discord bot thats pretty cool i guess, join the discord [**here**](https://opiat.es/haunt)  
 
 <!--
 **coffin/coffin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
